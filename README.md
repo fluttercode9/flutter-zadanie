@@ -1,1 +1,1 @@
-# zadanie rektutacyjne
+# zadanie rekrutacyjne
